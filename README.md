@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @SpyCrabXT
+- 👀 I’m interested in gaming
+- 🌱 I’m currently learning high school stuff
+- 💞️ I’m looking to collaborate on nothing I suppose
+- 📫 How to reach me: Stretch arms very far
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: Each ghost in pacman has a name! Red is Blinky, orange is Clyde, pink is Pinky, and blue is Inky!
